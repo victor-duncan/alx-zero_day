@@ -1,1 +1,1 @@
-My second coding experience and a full slack engineer
+My second coding experience as a full slack engineer
